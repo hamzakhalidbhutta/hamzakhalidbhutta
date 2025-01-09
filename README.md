@@ -1,4 +1,4 @@
-# Hi there 👋 I'm [Your Name]  
+# Hi there 👋 I'm HAMZA KHALID BHUTTA  
 
 Welcome to my GitHub! 🚀  
 I'm a passionate **[entrepreneu]** who loves building cool things with code and learning new technologies.
