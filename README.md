@@ -31,8 +31,8 @@ Got an idea? Feel free to [reach out](#-how-to-reach-me).
 ---
 
 ## 📫 How to Reach Me  
-📧 Email: [hamzakhalidbhuttaofficial@gmail.com](mailto:hamzakhalidbhuttaofficial@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com/in/hamza-khalid-bhutta) | [Portfolio](https://yourportfolio.com) | [Twitter](https://twitter.com/yourhandle)  
+📧 Email: [hamzakhalidbhutta430@gmail.com](mailto:hamzakhalidbhutta430@gmail.com)  
+🔗 [LinkedIn]([https://www.linkedin.com/in/hamza-khalid-bhutta-086735212/](https://www.linkedin.com/in/hamza-khalid-bhutta-086735212/))
 
 ---
 
